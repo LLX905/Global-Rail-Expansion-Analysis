@@ -58,3 +58,12 @@ Enables scalable expansion opportunities
 - Business analysis
 - Visualization design
 - Decision-making with data
+
+<img width="1365" height="767" alt="Global Rail Expansion Strategy_ Identifying the Optimal Market for Growth" src="https://github.com/user-attachments/assets/831dcb05-7324-4df8-af1a-00a83c1c1362" />
+<img width="1365" height="767" alt="Global Rail Expansion Strategy_ Identifying the Optimal Market for Growth (1)" src="https://github.com/user-attachments/assets/0580e6d3-df0c-4b9f-b421-d6a654ff463d" />
+<img width="1365" height="767" alt="Global Rail Expansion Strategy_ Identifying the Optimal Market for Growth (2)" src="https://github.com/user-attachments/assets/18692ce1-d41d-4562-8c42-baae6c8ee669" />
+<img width="1365" height="767" alt="Global Rail Expansion Strategy_ Identifying the Optimal Market for Growth (3)" src="https://github.com/user-attachments/assets/6c26faf1-6850-4db7-8330-8b2459d2a723" />
+<img width="1365" height="767" alt="Global Rail Expansion Strategy_ Identifying the Optimal Market for Growth (4)" src="https://github.com/user-attachments/assets/cb01841b-0c5c-476a-8295-0a820502d97a" />
+
+
+
